@@ -17,7 +17,9 @@ Here are some ideas to get you started:
 
 I am alphafitz, interested in blockchain, smart contracts, DeFi, blockchain security, etc., curious about everything happening in the blockchain world.
 
-Welcome to the dark forest.
+Some of my notes are in www.alphafitz.com.
+
+Welcome to the dark forest and have fun:)
 
 Stay suspicious, stay curious.
 

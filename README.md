@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I am alphafitz, interested in blockchain, smart contracts, DeFi, blockchain security, etc., curious about everything happening in the blockchain world.
+
+Welcome to the dark forest.
+
+Stay suspicious, stay curious.
+
+Feel free to contact alphafitz01@gmail.com.
